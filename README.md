@@ -1,4 +1,4 @@
-## Hi there 👋
+![logo](https://github.com/Sharathhk122/Sharathhk122/blob/main/sharath%20banner.png)
 <h1 align="center">Hi 👋, I'm SHARATH H K</h1>
 <h3 align="center">A passionate Software developer from India</h3>
 
