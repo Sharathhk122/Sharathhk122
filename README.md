@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **sharathhk40@gmail.com**
 
-- 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:AP:9daa984b-c245-4998-83ca-6bde3449b8b8?comment_id=60cf93f8-d2ff-44ee-87c2-ecbf9399d61d]([https://acrobat.adobe.com/id/urn:aaid:sc:AP:9daa984b-c245-4998-83ca-6bde3449b8b8?comment_id=60cf93f8-d2ff-44ee-87c2-ecbf9399d61d](https://acrobat.adobe.com/id/urn:aaid:sc:AP:e3f66944-4b60-4902-8fb6-08defcd41ef5?comment_id=358bdb64-04f2-42bd-aba2-9fc4b07cf2e8)
+- 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:AP:1de595b9-9480-4447-9b36-4e201b50ca47]
 
 - ⚡ Fun fact **I am Funny😜**
 
